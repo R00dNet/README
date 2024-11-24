@@ -3,6 +3,6 @@ About
 
 Lysergic autooctopus
 
-Music Producer, Code Producer, Auto-GPT, OpenAI Plugin Dev, Visual Prompting AI, Adversarial AI, Defence and Politics
-
-Repo will feature Projects from all the above.
+Arkhistrategos The Line Group Ltd  〰️🛡️〰️ https://thelinegroup.ai 
+Neuromantic 🧠 Polymath 💫 big 🎱🧲 energy Psycharch Noönaut.
+Audio Engineer working on human and machine intelligence, consciousness, neuromodulation, cognitive security, and signal intelligence 👁️
